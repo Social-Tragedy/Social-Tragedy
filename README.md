@@ -4,4 +4,6 @@
 
 
 <p align="center"
-  ₍ᐢ. .ᐢ₎    BYF.  I have severe ocd and dpd, I tend to get attached quickly and I may be unempathetic if I'm annoyed! 
+
+⠀ ⠀ ⠀ ⠀₍ᐢ. .ᐢ₎⠀ ⠀ ⠀ ⠀ ⠀BYF⠀ ⠀ ⠀ I have severe ocd and dpd, I tend to get attached quickly and I may be unempathetic if I'm annoyed.
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀I love to make new friends, just please be patient with me
